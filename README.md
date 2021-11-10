@@ -1,0 +1,2 @@
+# STORYNews
+Política de Privacidade
